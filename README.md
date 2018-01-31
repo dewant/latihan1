@@ -1,1 +1,3 @@
 # latihan1
+
+amnbmnabcmabmncbmna
